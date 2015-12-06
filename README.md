@@ -1,4 +1,1 @@
-githe-hell
-==========
-
-githe-hell githe-hell githe-hell
+this is my blog baby.
